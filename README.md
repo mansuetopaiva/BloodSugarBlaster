@@ -1,1 +1,1 @@
-# 1000-prompts
+# Blood Sugar Blaster is a dietary supplement designed to support healthy blood sugar levels already within the normal range. Its formula combines carefully selected natural ingredients that may help support metabolism, energy production, and overall wellness as part of a healthy lifestyle.
